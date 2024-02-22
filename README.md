@@ -3,4 +3,4 @@
 finding it hard to continue with everyday task
 i cant continue with the blog site
 news and everyday updates
-day 10 of daily streaks
+day 102 of daily streaks
